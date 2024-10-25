@@ -1,6 +1,12 @@
+_ _ _ _ _
+
 <div align="center">
 
-![picmix com_11758160](https://github.com/user-attachments/assets/40287277-69e8-47eb-bcec-57d3b46ba057)
+![Mizuki_35_art](https://github.com/user-attachments/assets/9fa77645-1c4e-48c2-b73f-8617edf9f982)
+
+_ _ _ _ _
+
+$${\color{pink}"呼吸を止めて"}$$
 
 </div>
 
