@@ -1,26 +1,22 @@
 <div align="center">
 
-![sparkle](https://files.catbox.moe/1hkrpi.gif)
+![Tomie.](https://files.catbox.moe/z23gxb.png)
+![smth](https://watermelon.crd.co/assets/images/gallery22/74944317.gif?v=6332de85)
 
-_ _ _ _ _
+![Tumblr_l_1274052159844415](https://github.com/user-attachments/assets/7b47cb5f-c7d3-4fa9-8788-f816d9eb48a8)
 
-![Mizuki_35_art](https://github.com/user-attachments/assets/9fa77645-1c4e-48c2-b73f-8617edf9f982)
+![top](https://files.catbox.moe/7ca6td.png)
 
-_ _ _ _ _
+$${\color{red}...}$$
 
-![ruffle](https://64.media.tumblr.com/84c94f13006b4af85d190e92462f7f91/1aa1f564141726a7-0b/s1280x1920/2686e51e34c6ff7b0a128270249e7abb692f1ce3.gif)
+![rose](https://files.catbox.moe/u72eu6.png)
 
-![top](https://files.catbox.moe/x1x0fr.gif)
+$${\color{red}⋅ ‧ ୨୧ ‧ ⋅ \color{salmon}Usually \space hanging \space around \space with \space my \space people. \space \color{red}⋅ ‧ ୨୧ ‧ ⋅}$$
 
-$${\color{pink}"呼吸を止めて"}$$
+**$${\color{red}Basic \space DNI \space Criteria}$$** [...](https://dni-criteria.carrd.co/)
 
-$${\color{pink}⋅ ‧ ୨୧ ‧ ⋅ \color{salmon}Usually \space hanging \space around \space with \space my \space people. \space \color{pink}⋅ ‧ ୨୧ ‧ ⋅}$$
-
-**$${\color{pink}Basic \space DNI \space Criteria}$$** [...](https://dni-criteria.carrd.co/)
-
-![bottom](https://files.catbox.moe/mavvxa.gif)
-
-![heartline](https://files.catbox.moe/q4ko23.gif)
+![bottom](https://files.catbox.moe/r013k2.png)
+![Her.](https://files.catbox.moe/tchqqf.png)
 
 </div>
 
