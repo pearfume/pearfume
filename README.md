@@ -17,7 +17,7 @@ $${\color{red}⋅ ‧ ୨୧ ‧ ⋅ \color{salmon}Usually \space hanging \space
 
 ![bottom](https://files.catbox.moe/r013k2.png)
 
-<img src="https://komarev.com/ghpvc/?username=pearfume&label=Profile%20views&color=0e75b6&style=flat" alt="pearfume" /> </p>
+<img src="https://komarev.com/ghpvc/?username=pearfume&label=Profile%20views&color=BA1B1D&style=flat" alt="pearfume" /> </p>
 
 ![Her.](https://files.catbox.moe/tchqqf.png)
 
