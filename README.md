@@ -16,6 +16,9 @@ $${\color{red}⋅ ‧ ୨୧ ‧ ⋅ \color{salmon}Usually \space hanging \space
 **$${\color{red}Basic \space DNI \space Criteria}$$** [...](https://dni-criteria.carrd.co/)
 
 ![bottom](https://files.catbox.moe/r013k2.png)
+
+![Visitor Count](https://profile-counter.glitch.me/{pearfume}/count.svg)
+
 ![Her.](https://files.catbox.moe/tchqqf.png)
 
 </div>
