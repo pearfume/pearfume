@@ -1,25 +1,22 @@
 <div align="center">
 
-![Tomie.](https://files.catbox.moe/z23gxb.png)
-![smth](https://watermelon.crd.co/assets/images/gallery22/74944317.gif?v=6332de85)
-
-![Tumblr_l_1274052159844415](https://github.com/user-attachments/assets/7b47cb5f-c7d3-4fa9-8788-f816d9eb48a8)
+![Story_Carnival_Parade_4_BG](https://github.com/user-attachments/assets/44326aad-d0cb-4e0c-b3fb-ea0a4284c300)
 
 ![top](https://files.catbox.moe/7ca6td.png)
 
-$${\color{red}...}$$
+$${\color{#763fbb}.W.I.P.}$$
 
 ![rose](https://files.catbox.moe/u72eu6.png)
 
-$${\color{red}⋅ ‧ ୨୧ ‧ ⋅ \color{salmon}Usually \space hanging \space around \space with \space my \space people. \space \color{red}⋅ ‧ ୨୧ ‧ ⋅}$$
+$${\color{red}⋅ ‧ ୨୧ ‧ ⋅ \color{#763fbb}Usually \space hanging \space around \space with \space my \space people. \space \color{red}⋅ ‧ ୨୧ ‧ ⋅}$$
 
 **$${\color{red}Basic \space DNI \space Criteria}$$** [...](https://dni-criteria.carrd.co/)
 
 ![bottom](https://files.catbox.moe/r013k2.png)
 
-<img src="https://komarev.com/ghpvc/?username=pearfume&label=Moles%20mortium&color=BA1B1D&style=flat" alt="pearfume" /> </p>
+<img src="https://komarev.com/ghpvc/?username=pearfume&abbreviated=true&label=Roses%20blooming%20in%20the%20garden...&color=BA1B1D&style=for-the-badge" alt="pearfume" /> </p>
 
-![Her.](https://files.catbox.moe/tchqqf.png)
+![Story_Carnival_Parade_1_BG](https://github.com/user-attachments/assets/0ff5a3ff-998f-42c3-8a70-401713c79899)
 
 </div>
 
